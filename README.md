@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **node.js, Web Designing**
 
-- 📫 How to reach me **chellapillihemanth77@gmail.com**
+- 📫 How to reach me **chellapillihemanth993@gmail.com**
 
 - ⚡ Fun fact **I think I'm perfect**
 
